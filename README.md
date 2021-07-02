@@ -1,1 +1,0 @@
-# jangya.github.io
